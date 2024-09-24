@@ -1,3 +1,7 @@
+## 💚💉 Influence 
+### 🥇✨ GDSC 2024 New Year 해커톤 1등 최우수상
+> [CAU NEWS](https://news.cau.ac.kr/cms/FR_CON/BoardView.do?MENU_ID=10&CONTENTS_NO=&SITE_NO=5&BOARD_SEQ=1&BOARD_CATEGORY_NO=&P_TAB_NO=1&TAB_NO=&BBS_SEQ=7816)
+
 ![Influence_1](https://github.com/user-attachments/assets/52cd5b4a-4e76-4674-8182-db8c394a3c9f)
 ![Influence_2](https://github.com/user-attachments/assets/78fa32d4-b005-4233-a506-1842e922b54e)
 ![Influence_3](https://github.com/user-attachments/assets/af84620b-1bbb-4e99-b5aa-c578a33d62c1)
