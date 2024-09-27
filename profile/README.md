@@ -5,7 +5,6 @@
 ![Influence_1](https://github.com/user-attachments/assets/52cd5b4a-4e76-4674-8182-db8c394a3c9f)
 ![Influence_2](https://github.com/user-attachments/assets/78fa32d4-b005-4233-a506-1842e922b54e)
 ![Influence_3](https://github.com/user-attachments/assets/af84620b-1bbb-4e99-b5aa-c578a33d62c1)
-![Influence_3](https://github.com/user-attachments/assets/b7637b30-2d42-4bc0-90c9-13247c4859d5)
 ![Influence_4](https://github.com/user-attachments/assets/cbae1dd3-7184-4a94-ab61-c414880543e1)
 ![Influence_5](https://github.com/user-attachments/assets/ba33f946-5edb-48a4-ae74-f37c1ec9b607)
 ![Influence_6](https://github.com/user-attachments/assets/0b3fc6f2-4dc1-40b1-949d-a3c74275b3ab)
